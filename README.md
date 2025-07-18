@@ -4,8 +4,6 @@ Healthcare management app
 
 
 
-Awesome, Roniel. Let’s turn your healthcare startup idea into a \*\*3-Phase Capstone-Ready Project Roadmap\*\* — something \*\*big\*\*, strategic, and still aligned with school.
-
 
 
 ---
